@@ -1,1 +1,1 @@
-# shusiou_contents
+# shusiou_contents organization
